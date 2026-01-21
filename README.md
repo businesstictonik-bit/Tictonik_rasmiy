@@ -1,1 +1,0 @@
-# Tictonik_rasmiy
